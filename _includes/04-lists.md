@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+- work hard
+- dream big
+- wake up early
+- put the time
+- study
