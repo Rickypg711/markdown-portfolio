@@ -1,0 +1,5 @@
+- work hard
+- dream big
+- wake up early
+- put the time
+- study
